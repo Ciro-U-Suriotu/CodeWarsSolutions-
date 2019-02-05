@@ -3,7 +3,7 @@ My solution in CodeWars
 
 Mio figlio vicenzo ha appena inizato le superiori e la professoresá di informatica ha consigliato alla riunione di oggi di fare qualche problema su code 'guars ' un sito che facilita l apprendimento
 
-acimm fatt qualche problema qua e la se volete date un occhiata
+acimm fatt qualche problema quà e là se volete date un occhiata
 
 STATS: 
 
