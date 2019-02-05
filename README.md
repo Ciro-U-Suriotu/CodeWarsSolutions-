@@ -22,7 +22,7 @@ Buona permanenza compari!!!!!!
 
 ![alt text](https://www.codewars.com/users/Ciro_U_Suriotu/badges/large)
 
-![alt text](https://imgur.com/a/sO8mjsO)
+![alt text](https://i.imgur.com/5baHNA4.jpg)
 
 STATS: 
 
