@@ -1,6 +1,6 @@
 # CodeWarsSolutions-
 My solution in CodeWars
-mio figlio vicenzo ha appena inizato le superiori e la professoresá di informatica ha consigliato alla riniuone di oggi di fare qualche problema su code 'guars ' un sito che facilita l apprendimento
+mio figlio vicenzo ha appena inizato le superiori e la professoresá di informatica ha consigliato alla riunione di oggi di fare qualche problema su code 'guars ' un sito che facilita l apprendimento
 
 acimm fatt qualche problema qua e la se volete date un occhiata
 
