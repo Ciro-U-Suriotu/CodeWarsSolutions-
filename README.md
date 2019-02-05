@@ -20,9 +20,9 @@ ahahah sabbinirìca picciotti
 
 Buona permanenza compari!!!!!!
 
-https://www.codewars.com/users/Ciro_U_Suriotu/badges/large
+![alt text](https://www.codewars.com/users/Ciro_U_Suriotu/badges/large)
 
-https://imgur.com/a/sO8mjsO
+![alt text](https://imgur.com/a/sO8mjsO)
 
 STATS: 
 
