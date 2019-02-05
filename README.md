@@ -6,6 +6,23 @@ meu figghiu vicenzo ha appena accuminciato le superiori e il prufissuri di infor
 
 acimm fatt qualche problema quà e là se volete date un occhiata
 
+
+
+Mie info: ho 47 anni, vivo a Altavilla Milicia, paese nella provincia de Palermo (W CALCIO CITTA DI PALERMO PER SEMPRE <3), sono piscaturi e travagghio per conto di Don Nino.
+
+Mi figghiu: 14 anni, appassionato di palluni, ama il computer da annu che furuno
+
+
+Babbaluci, fungi e granci spenn'assai e nenti mangi.
+
+
+ahahah sabbinirìca picciotti 
+
+Buona permanenza compari!!!!!!
+
+https://www.codewars.com/users/Ciro_U_Suriotu/badges/large
+
+
 STATS: 
 
 1 dan / 2%
@@ -28,17 +45,3 @@ Python:2 kyu / 24%
 
 Ruby:5 kyu / 95.4%
 
-
-Mie info: ho 47 anni, vivo a Altavilla Milicia, paese nella provincia de Palermo (W CALCIO CITTA DI PALERMO PER SEMPRE <3), sono piscaturi e travagghio per conto di Don Nino.
-
-Mi figghiu: 14 anni, appassionato di palluni, ama il computer da annu che furuno
-
-
-Babbaluci, fungi e granci spenn'assai e nenti mangi.
-
-
-ahahah sabbinirìca picciotti 
-
-Buona permanenza compari!!!!!!
-
-https://www.codewars.com/users/Ciro_U_Suriotu/badges/large
